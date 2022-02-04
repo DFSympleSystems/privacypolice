@@ -1,2 +1,2 @@
 # privacypolicy
-Privacy Police for Vapt Vupt Tech RJ
+Privacy Policy for Vapt Vupt Tech RJ
